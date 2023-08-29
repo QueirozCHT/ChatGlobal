@@ -1,1 +1,0 @@
-# ChatGlobal 1
